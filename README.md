@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @reid-sunshine
 - 👀 I’m interested in Java, JavaScript, Python
 - 🌱 I’m currently learning Python & JavaScript
-- 📫 How to reach me reid_sunshine@mynbps.org
+- 📫 How to reach me rsunshine35@gmail.com or Reid#5410 on Discord
